@@ -7,4 +7,4 @@ I've included the following materials.
 * Slides for poster paper presentation
 * Research poster used for poster sessions
 
-Feel free to contact me at ajsteenhoek@gmail.com for any questions or follow-ups.
+Feel free to contact me at ajsteenhoek@gmail.com for any questions or follow-ups!
